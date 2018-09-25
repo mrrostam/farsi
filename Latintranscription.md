@@ -1,4 +1,4 @@
-*Zabān-e fārsi
+# Zabān-e fārsi
 
 Sāheb-e in porože taqyirhā-yi asāsi dar zabān-e fārsi, Dar dastur-o bexosus dar rasmolxat rā zaruri mi‌dānad.
 
