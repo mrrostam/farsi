@@ -1,5 +1,5 @@
 # Zabān-e fārsi
 
-Sāheb-e in porože taqyirhā-yi asāsi dar zabān-e fārsi, Dar dastur-o bexosus dar rasmolxat rā zaruri mi‌dānad.
+Sāheb-e in porože taqirhā-i asāsi dar zabān-e fārsi, dar dastur, va bexosus dar rasmolxat rā zaruri mi‌dānad.
 
-Dar in porože jozve‌-i hāvi-ye pišnahādhā-yi barā-ye Eslāh-e zabān tahiye mi‌šavad. In eslāh‌hā momken-ast dar تگاهِ avval-e šadid be nazar-e beresad, ammā Nevisande‌-ye mo’taqed-ast conin taqyirhā-yi dir yā zud bāyad anjām پزیرد
+Dar in porože jozve‌-i hāvi-e pišnahādhā-i barā-e Eslāh-e zabān tahiye mi‌šavad. In eslāh‌hāt momken ast dar negāh-e avval šadid be nazar beresad, ammā nevisand  mo’taqed ast in taqyirhā dir yā zud bāyad anjām pazirad.
